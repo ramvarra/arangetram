@@ -2,7 +2,9 @@
 ### Jul 30, 2016
 
 
-## Photos
+## [Arangetram Videos](https://www.youtube.com/playlist?list=PLBT5jMdiHcikb8kWF9C7k1TpKryl9_jPj)
+
+## Arangetram Photos
 
    1. [Pre Show - Stage, Foyer Preperation, Volunteers & Guest Arrivals](https://goo.gl/photos/352Ezw2RXbs1rRsHA)
    2. [Pushpanjali](https://goo.gl/photos/7ShVocfzLhagTnLE7)
@@ -16,4 +18,3 @@
    10. [Thillana and Mangalam](https://goo.gl/photos/nCfTBXPzh1nNpWvE8)
    11. [End of Show - Family and Friends](https://goo.gl/photos/PQLXMvaw9Hr2boQVA)
    
-## Videos
