@@ -13,7 +13,7 @@
    7. [Shivapadam - Solo by Shreya](https://goo.gl/photos/rXZ4sbkdWmdTshdE6)
    8. [Annamacharya Kirthana - Solo by Priya](https://goo.gl/photos/ybCMJG11fcPfkcNY6)
    9. [Graduation Awards](https://goo.gl/photos/DkWDTkaFkKqYhsB58)
-  10. [Thillana and Mangalam](https://goo.gl/photos/nCfTBXPzh1nNpWvE8)
-  11. [End of Show - Family and Friends](https://goo.gl/photos/PQLXMvaw9Hr2boQVA)
+   10. [Thillana and Mangalam](https://goo.gl/photos/nCfTBXPzh1nNpWvE8)
+   11. [End of Show - Family and Friends](https://goo.gl/photos/PQLXMvaw9Hr2boQVA)
    
 ## Videos
